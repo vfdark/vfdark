@@ -1,6 +1,6 @@
 hello i'm rahaf alharbi,
 20 years old ,
-majoring in computer science with a cyber security track
+majoring in computer science with a cyber security track, and I'm also an After Effects editor 
 _______________________________________________________
 Something about me:
 Since I was little, knowing how computers operate and how to program has always attracted me.
